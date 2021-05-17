@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rapid0156
+- 👀 I’m interested in Python
+- 🌱 I’m currently learning HTML and mor Python
+- 💞️ I’m looking to collaborate on Nothing right now
+- 📫 How to reach me rapid0156.twitch@gmail.com
